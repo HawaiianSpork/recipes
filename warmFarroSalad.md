@@ -1,5 +1,5 @@
 # Warm Farro Salad
-Makes 2 servings. Fennel is in season from fall until spring.
+Makes 2 servings. Fennel is in season from Fall until Spring.
 
 ## Ingredients
 * ¾ Cup Pearled Faro
