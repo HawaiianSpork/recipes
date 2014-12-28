@@ -8,7 +8,7 @@
  * 1/3 Cup minced cilantro
  * 3 Tablespoon vinegar
  * 2 teaspoons sugar
- * 2 teaspoons cummin
+ * 2 teaspoons cumin
  * 2 teaspoons chilli
  * 15oz can black beans
 
