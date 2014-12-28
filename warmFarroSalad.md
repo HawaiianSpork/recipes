@@ -1,4 +1,5 @@
 # Warm Farro Salad
+Serves 2. Fennel is in season from fall until spring.
 
 ## Ingredients
 * ¾ Cup Pearled Faro
