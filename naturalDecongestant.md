@@ -10,10 +10,10 @@ Adults take 1-2 tablespoons daily as needed. Shake well before using, as the pow
 * 1/4 cup of apple cider vinegar
 
 ## Directions
-# Pour ¼ cup of lemon juice and ¼ cup of apple cider vinegar in pot and bring to a gentle simmer.
-# Stir in 2-3 tablespoons of raw organic honey
-# Add ½ teaspoon of cayenne pepper and ginger each (the latter amount makes it quite strong.)
-# Store in a jar in a cool, dark, place indefinitely.
+1. Pour ¼ cup of lemon juice and ¼ cup of apple cider vinegar in pot and bring to a gentle simmer.
+2. Stir in 2-3 tablespoons of raw organic honey
+3. Add ½ teaspoon of cayenne pepper and ginger each (the latter amount makes it quite strong.)
+4. Store in a jar in a cool, dark, place indefinitely.
 
 ## Resources
 http://everydayroots.com/natural-decongestant
