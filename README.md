@@ -1,4 +1,4 @@
-recipes
+Recipes
 =======
 
-My Recipes, as in food
+A repository for tried and true recipes
