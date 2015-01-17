@@ -1,7 +1,7 @@
 # Beef Liver with Fig Bacon and Carmelized Onion Compote
 Serves 2-3.
 
-** Ingredients
+## Ingredients
 * 375g beef liver, sliced
 * The juice of 1 lemon
 * 2 tsp arrowroot flour
