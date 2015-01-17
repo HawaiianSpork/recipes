@@ -1,23 +1,23 @@
-* Beef Liver with Fig Bacon and Carmelized Onion Compote
-Serves 2-3
+# Beef Liver with Fig Bacon and Carmelized Onion Compote
+Serves 2-3.
 
 ** Ingredients
-375g beef liver, sliced
-The juice of 1 lemon
-2 tsp arrowroot flour
-½ tsp Himalayan or unrefined sea salt
-½ tsp freshly cracked black pepper
-4 slices pastured bacon, cut crosswise into ½" pieces
-2 large onions, sliced
-200g mushrooms, sliced
-4 dried figs, chopped
-¼ tsp Himalayan or unrefined sea salt
-½ tsp freshly cracked black pepper
-2 sprigs fresh sage, chopped
-2 tbsp white balsamic vinegar
-1/4 cup water
+* 375g beef liver, sliced
+* The juice of 1 lemon
+* 2 tsp arrowroot flour
+* ½ tsp Himalayan or unrefined sea salt
+* ½ tsp freshly cracked black pepper
+* 4 slices pastured bacon, cut crosswise into ½" pieces
+* 2 large onions, sliced
+* 200g mushrooms, sliced
+* 4 dried figs, chopped
+* ¼ tsp Himalayan or unrefined sea salt
+* ½ tsp freshly cracked black pepper
+* 2 sprigs fresh sage, chopped
+* 2 tbsp white balsamic vinegar
+* 1/4 cup water
 
-** Instructions
+## Instructions
 1. In a non-reactive sealable container, marinate the beef liver in lemon juice for at least 8 hours (or up to 24 hours). Yes, that’s in the refrigerator!
 2. In a cold, large heavy skillet (cast iron preferred) set over medium heat, cook the bacon until nice and crispy.
 3. While the bacon is cooking, rinse the beef liver slices under running water and pat them dry.
@@ -31,5 +31,5 @@ The juice of 1 lemon
 11. Stir in fresh sage, kill the heat and place liver slices on top of the onion compote. Cover loosely and let sit for about 5 minutes just to warm up the liver and allow all the flavours to mingle happily.
 12. Serve immediately , sprinkled with crispy bacon.
 
-** Resources
+## Resources
 http://thehealthyfoodie.com/beef-liver-with-fig-bacon-and-caramelized-onion-compote/
