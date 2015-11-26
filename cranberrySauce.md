@@ -5,13 +5,12 @@ _Serves 6_
 ### Ingredients ###
 
  * 24 oz fresh cranberries, washed and dried
- * 1 1/2 cup granulated sugar (try 1 cup next year)
+ * 1 cup granulated sugar
  * 1/2 cup water
  * 1 cinnamon stick
  * 1/2 teaspoon ground allspice
  * 1/4 teaspoon ground nutmeg
  * 1 orange, zested
- * sprinkling unflavored gelatin
 
 ### Directions ###
 
