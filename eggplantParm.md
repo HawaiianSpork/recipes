@@ -3,7 +3,7 @@ Servers 12
 == Sauce ==
 - olive oil
 - 3 large garlic cloves chopped
-- 1 onion
+- 1 onion cut in half
 - 8lb whole peeled plum tomatoes
 - 20 fresh Basel Leaves
 - Dried Oregano
@@ -11,7 +11,7 @@ Servers 12
 - ½ tsp Salt
 - ½ tsp pepper
 
-1. Start with the garlic and then onion in olive oil.  Then add everything else and cook until Onion falls apart (~25 minutes)
+1. Start with the garlic and then onion in olive oil.  Then add everything else and cook until Onion falls apart (~1 hour)
 
 == The Rest ==
 
