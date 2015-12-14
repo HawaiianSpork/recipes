@@ -26,13 +26,9 @@ Servers 12
 2. Wash eggplant and dry
 3. Dip eggplant in flour
 4. Dip eggplant in egg with black pepper and then in breadcrumb
-5. Fry
+5. Fry in canola oil
 6. Drain eggplant on paper towel
 
-In baking dish put a little sauce, then a layer of eggplant, then freshly grated mozzarella and parm cheese.  Salt and pepper than additional sauce.  Repeat
+In baking dish put a little sauce, then a layer of eggplant, then freshly grated mozzarella and parm cheese, salt and pepper.  Repeat
 
-Top with mozerella
-
-Then bake at 375˚ for about 45 minutes—you may need to broil the top for a minute or two to get the cheese bubbly and golden.
-
-Wait until eggplant cools to near room temperature before serving.
+Then bake at 375˚ for about 35 minutes the top for a minute or two to get the cheese bubbly and golden.
