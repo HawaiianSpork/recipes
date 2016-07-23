@@ -1,0 +1,30 @@
+Derived from: http://www.food.com/recipe/oatmeal-chocolate-chip-lactation-cookies-by-noel-trujillo-192346
+
+## Ingredients
+
+* 1 cup butter
+* 1 cup sugar
+* 1 cup firmly packed brown sugar
+* 4 tablespoons water
+* 2 tablespoons flax seed meal
+* 2 eggs
+* 1 teaspoon vanilla
+* 2 cups flour
+* 1 teaspoon baking soda
+* 1 teaspoon salt
+* 3 cups rolled oats
+* 1 cup cacoa nubs
+
+## Directions
+
+1. Preheat oven to 350°.
+- Mix the flaxseed meal and water and let sit for 3-5 minutes.
+- Beat butter, sugar, and brown sugar well.
+- Add eggs and mix well.
+- Add flaxseed mix and vanilla, beat well.
+- Sift together flour, brewers yeast, baking soda, and salt.
+- Add dry ingredients to butter mix.
+- Stir in oats and chips.
+- Scoop onto baking sheet.
+- Bake for 12 minutes.
+- Let set for a couple minutes then remove from tray.
