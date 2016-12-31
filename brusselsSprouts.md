@@ -3,13 +3,15 @@
 Derived from Alton Brown's brussel sprout recipe.
 
 ## Ingredients
-* 1.5 lb fresh Brussels sprouts
-* 3 tablespoons olive oil
-* kosher salt
-* 0.5 teaspoon sesame oil
-* 0.5 teaspoon fish sauce
-* 0.5 teaspoon red pepper flakes
-* 2 ounces roasted peanuts, chopped
+ * 1.5 lb fresh Brussels sprouts
+ * 3 tablespoons olive oil
+ * kosher salt
+ * 0.5 teaspoon sesame oil
+ * 0.5 teaspoon fish sauce
+ * 0.5 teaspoon red pepper flakes
+ * 2 ounces roasted peanuts, chopped
+
+## Directions
 
 1. Heat oven to 425 degrees
 1. Trim the dry ends from the sprouts and remove any yellow outer leaves, then halve the sprouts logintudinally
