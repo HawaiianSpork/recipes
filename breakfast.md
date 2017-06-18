@@ -13,8 +13,14 @@ https://www.pickuplimes.com/single-post/2017/04/18/Roasted-Cashew-Coconut-Cocoa-
 ## Muesli
 https://www.pickuplimes.com/single-post/2016/11/27/Crunchy-Pecan-Cranberry-Muesli
 
+http://talesofakitchen.com/breakfast/quinoa-and-chia-porridge-with-stone-fruits/
+
 ## Yogurt
 
 ## Egg Sandwich
 
 ## Congee
+
+## Polenta with Salted Egg
+
+## Smoothie
