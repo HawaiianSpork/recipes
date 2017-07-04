@@ -1,5 +1,8 @@
 # Hawaiian Salad
 
+## Portion
+Enough for a party of ~25 people.
+
 ## Ingredients
  - 40oz Pineapple Chunks in Pineapple Concentrate (drained)
  - 30oz Mandarin Oranges in their own juices (drained)
