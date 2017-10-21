@@ -16,7 +16,7 @@ Wet Ingredients
 - 2 tbsp of canola oil
 - 2 ripe banannas, mashed
 
-0. blend dry ingredients, combine wet and dry ingredients until 
+0. blend dry ingredients, combine wet and dry ingredients until just mixed.
 1. cast iron at level 5 with canola oil
 2. Pour or scoop 1/4 cup of batter
 3. 2 minutes each side (until bubbles pop and don't fill back in)
