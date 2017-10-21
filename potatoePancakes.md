@@ -1,4 +1,4 @@
-# Potato Pancakes
+# Potatoe Pancakes
 
 Based on: https://www.epicurious.com/recipes/food/views/classic-potato-pancakes-233361
 
