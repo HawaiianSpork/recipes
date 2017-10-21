@@ -6,7 +6,7 @@ Based on: https://www.epicurious.com/recipes/food/views/classic-potato-pancakes-
  - 1 medium onion, peeled
  - 4 large russet or Idaho potatoes (about 3 1/2 pounds), peeled
  - 2 large eggs
- - 2 tablespoons all-purpose flour
+ - 2.5 tablespoons all-purpose flour
  - 6 tablespoons vegetable oil
  - 6 tablespoons unsalted butter
 
