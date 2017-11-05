@@ -4,7 +4,7 @@ Derived from Better Homes & Garden
 
 ## Ingredients
 Dry Ingredients
- - 1 cup all-purpose flour
+ - 121g (1 cup) all-purpose flour
  - 1 teaspon baking powder
  - 1/4 teaspoon baking soda
  - 1/4 teaspoon salt
