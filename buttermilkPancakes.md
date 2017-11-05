@@ -16,7 +16,9 @@ Dry Ingredients
  - 2 tablespoons cooking oil
  
  ## Directions
+ 0. Start heating skillet to medium high heat (5).
  1. Combine dry ingriedients in large bowl.
  2. Combine wet ingriedients.
  3. Pour wet ingriedients into dry ingrients until moistened.
- 4. Ladle mixture into medium hot skillet (5) and let cook for 2 minutes on each side (until bubbles stop coming through batter).
+ 4. Add oil to skillet
+ 5. Ladle in batter  let cook for 2 minutes on each side (until bubbles stop coming through batter).
