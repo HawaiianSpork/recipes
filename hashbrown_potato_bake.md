@@ -22,11 +22,10 @@ This recipe is from Mary Sulda
  
  ## Directions
  
-  1. Preheat onion to 375
+  1. Preheat oven to 375
   1. Partially saute onions and garlic in butter so they are somewhat crisp.
   1. In a large, deep bowl add all the ingredients, saving spices for last.
   1. Fold with wooden spoon until all ingrediencts are mixed.
   1. Fold into a well buttered oblong pan.
   1. Make the topping, mix buttern and corn flakes throughly  then place on top of potatoes.
   1. Bake for 45 minutes to 1 hour or until bubbling and brown.
-
