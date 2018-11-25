@@ -6,7 +6,7 @@ Adapted from Better Homes and Gardens Cook Book
 
 - 4 beaten eggs
 - 1 cup milk
-- 2 tbsp sugar
+- 1 tbsp sugar
 - 2 tsp vanilla
 - 1/2 tsp cinnamon
 - 1/4 tsp nutmeg
