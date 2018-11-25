@@ -12,7 +12,6 @@ Based on https://www.thespruceeats.com/old-fashioned-giblet-gravy-with-hard-boil
  - 1/2 cup milk (or half-and-half)
  - 1/2 teaspoon salt
  - 1/2 teaspoon freshly ground black pepper
- - 2 hard-cooked eggs (chopped) 
 
 ## Directions
 1. Place the giblets (except the liver) and turkey neck into a saucepan and cover with 4 cups cold water; bring to a boil. Reduce the heat to low and simmer the giblets for about 1 1/2 to 2 hours. At this point add the liver to the saucepan and simmer for another 30 minutes.
@@ -23,7 +22,3 @@ Based on https://www.thespruceeats.com/old-fashioned-giblet-gravy-with-hard-boil
 
 1. add the giblet broth or chicken or turkey stock to make 2 cups. Slowly stir in the broth into the roux. Add the milk or half-and-half. Continue cooking and stirring until thickened.
 1. Taste and season the gravy with kosher salt and freshly ground black pepper.
-1. Stir in the chopped hard-cooked eggs and chopped giblets and serve.
-
-
-
