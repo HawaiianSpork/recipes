@@ -16,7 +16,7 @@ Dry goods
 Wet works 2
  - 0.5 cups vegetable oil
  - 2 large eggs
- - 2/3 cup sugar
+ - 135g sugar
 
 ## Directions
  1. place the skillet on an oven rack at position B and preheat the ovent to 450F
