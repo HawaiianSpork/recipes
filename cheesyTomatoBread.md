@@ -3,14 +3,14 @@
 Derived from http://www.whatmegansmaking.com/2012/08/cheesy-tomato-bread.html
 
 ## Ingredients
-1 loaf french bread, sliced lengthwise
-3 Tbsp butter
-1/2 - 1 Tbsp garlic powder (to taste)
-3-4 fresh tomatoes, thinly sliced
-1 tsp kosher salt (use 1/2 tsp if using salted butter)
-2 Tbsp olive oil
-2 tsp oregano
-8 oz sliced or shredded mozzarella cheese
+ - 1 loaf french bread, sliced lengthwise
+ - 3 Tbsp butter
+ - 1/2 - 1 Tbsp garlic powder (to taste)
+ - 3-4 fresh tomatoes, thinly sliced
+ - 1 tsp kosher salt (use 1/2 tsp if using salted butter)
+ - 2 Tbsp olive oil
+  - 2 tsp oregano
+ - 8 oz sliced or shredded mozzarella cheese
 
 ## Directions
 
