@@ -19,13 +19,14 @@ Derived from: http://www.food.com/recipe/oatmeal-chocolate-chip-lactation-cookie
 
 1. Preheat oven to 350°.
 - Mix the flaxseed meal and water and let sit for 3-5 minutes.
+- Melt butter
 - Beat butter, sugar, and brown sugar well.
 - Add eggs and mix well.
 - Add flaxseed mix and vanilla, beat well.
 - Sift together flour, baking soda, and salt.
 - Add dry ingredients to butter mix.
 - Stir in oats and chips.
-- Scoop using an ice cream scooper onto baking sheet (makes about 20 cookies).
+- Scoop using the slotted spoon will give about 48 cookies.
 - Top each cookie with some salt?
 - Bake for 15 minutes.
 - Let set for a 5 minutes then remove from tray to completely cool.
