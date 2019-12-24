@@ -2,8 +2,8 @@
 
 ## Ingredients
 
- - 1 medium kohlrabi, grated
- - 1 potatoe, grated
+ - 1 medium kohlrabi, grated on finest setting
+ - 1 potatoe, grated on finest setting
  - 1 egg
  - 1 tsp salt
  - 2 tsp flour
