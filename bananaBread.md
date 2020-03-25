@@ -22,4 +22,4 @@ Derived from https://www.food.com/recipe/best-banana-bread-2886
 1. Sift together flour, soda and salt. Add to creamed mixture. Add vanilla.
 1. Mix just until combined. Do not overmix.
 1. Pour into greased and floured loaf pan.
-1. Bake for 55 minutes.
+1. Bake for 1 hour.
