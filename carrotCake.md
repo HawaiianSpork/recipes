@@ -22,7 +22,7 @@ Derived from https://www.saveur.com/article/Recipes/Carrot-Cake-1000067852/?utm_
 ### Frosting
  - 12 oz. cream cheese
  - 7 tbsp. unsalted butter, softened
- - 1 tbsp. vanilla extract
+ - 1 tsp. vanilla extract
  - 3 cups confectioners' sugar, sifted
 
 ## Instructions
