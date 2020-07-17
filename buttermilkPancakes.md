@@ -16,7 +16,7 @@ Dry Ingredients
  - 2 tablespoons cooking oil
  
  ## Directions
- 0. Start heating skillet to medium high heat (5).
+ 0. Start heating skillet to medium heat (4.5).
  1. Combine dry ingriedients in large bowl.
  2. Combine wet ingriedients.
  3. Pour wet ingriedients into dry ingrients until moistened.
