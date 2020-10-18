@@ -11,7 +11,7 @@ Adapted from Pumpkin Burgers in the Market Fresh Cookbook
 - 1 acorn squash
 - 1 teaspoon salt
 - 1/4 tsp cinnamon
-- 1 tsp pumpkin pie spice
+- 1 tsp pumpkin pie spice (8 cinnamon : 4 ginger : 2 cloves : 1 nutmeg)
 - 1/4 tsp pepper
 - 6 to 8 hamburger buns, split
 
