@@ -1,14 +1,15 @@
 # Tuna Noodles
 
+4 servings
 
 ## Ingredients
-- 1 Can Tuna
-- 4oz of green beans
-- Spagetti
-- 1 Clove Garlic, grated
-- 1.5 Tbs Mayo
-- .5 tsp salt
-- .5 pepper
+- 2 Can Tuna
+- 8oz of green beans
+- 1lb Spagetti
+- 2 Clove Garlic, grated
+- 3 Tbs Mayo
+- 1 tsp salt
+- 1 pepper
 - some lime or lemon juice
 
 ## Directions
