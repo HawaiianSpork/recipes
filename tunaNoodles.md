@@ -3,11 +3,11 @@
 4 servings
 
 ## Ingredients
-- 2 Can Tuna
+- 2 cans Tuna
 - 8oz of green beans
 - 1lb Spagetti
-- 2 Clove Garlic, grated
-- 3 Tbs Mayo
+- 2 clove garlic, grated
+- 3 Tbsp mayo
 - 1 tsp salt
 - 1 pepper
 - some lime or lemon juice
