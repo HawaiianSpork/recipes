@@ -9,7 +9,7 @@ Derived from https://spicysouthernkitchen.com/strawberry-pretzel-salad
 - 8 ounces cream cheese, softened
 - 1 cup sugar
 - 8-ounces of wipped cream (see wipped cream recipe)
-- 1 (6-ounce) package strawberry Jello-O
+- 2 (6-ounce total) package strawberry Jello-O
 - 2 cups boiling water
 - 2 cups thinly sliced fresh strawberries
 
