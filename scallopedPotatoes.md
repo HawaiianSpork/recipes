@@ -3,14 +3,14 @@
 Derived from https://www.spendwithpennies.com/scalloped-potatoes-recipe/
 
 ## Ingredients
- - ¼ cup butter
- - 1 large onion diced
- - 2 cloves garlic minced
- - ¼ cup flour
- - 2 cups milk
- - 1 cup chicken broth
- - ½ teaspoon salt
- - ¼ teaspoon pepper
+ - 1/2 cup butter
+ - 2 large onion diced
+ - 4 cloves garlic minced
+ - 1/2 cup flour
+ - 4 cups milk
+ - 2 cup chicken broth
+ - 1 teaspoon salt
+ - 1/2 teaspoon pepper
  - 3 pounds white potatoes sliced about ⅛" thick
  - salt and pepper to taste
  
