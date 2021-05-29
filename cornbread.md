@@ -22,5 +22,5 @@ Wet works 2
  1. place the skillet on an oven rack at bottom 25% and preheat the ovent to 450F
  1. In a large bowl soak the cornmeal in the milk for 20 minutes
  1. Assemble the dry goods and wet works via the muffin method, beating the oil and egg into the cornmeal-milk mixture before combining with the dry goods
- 1. Coat the skillet with butter, pour in the batter, and bake about 15 minutes, or until interiors hit 190F and the cornbread is golden brown.  bush down on top of cornbread, if it bounces back up it is ready.
+ 1. Coat the skillet with butter, pour in the batter, and bake about 14 minutes, or until interiors hit 190F and the cornbread is golden brown.  bush down on top of cornbread, if it bounces back up it is ready.
  1. Flip the skillet onto serving pan
