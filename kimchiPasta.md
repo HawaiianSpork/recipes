@@ -14,7 +14,7 @@ Derived from https://seonkyounglongest.com/easy-kimchi-noodles/
 
 ## Directions
 
-1. Cook pasta in salted boiling water by following the directions of the package, save 1/2 pasta water. 
+1. Cook pasta in salted boiling water by following the directions of the package, save 1/2 cup of pasta water. 
 2. Heat a wok or a large skillet over medium high heat, add butter and let it melt. When butter ’s melted add ground pork and cook until ground pork is fully cooked and brown edges. 
 4. Stir in kimchi, miso, pasta water and black pepper and cook everything together about 4 minutes.
 5. Stir in cooked and drained pasta into kimchi sauce and toss everything together. Sprinkle some parmigiano to your taste. Enjoy!
