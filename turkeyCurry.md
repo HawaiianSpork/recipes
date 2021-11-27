@@ -1,17 +1,25 @@
-# Quick Turkey Curry
+# Pineapple Turkey Curry
+
+Adapted from https://www.thespruceeats.com/leftover-turkey-curry-3061880
 
 ## Ingredients
-- 1/4 onion chopped
-- 1/2T butter
-- 1 10oz can of cream of anything soup
-- 1/4 cup of milk
-- 1 cup sour cream
-- 1 teaspoon curry
-- 1 cup of turkey, cubed
+- 4 tablespoons unsalted butter
+- 2 tablespoons curry powder
+- 1 1/2 cups chopped onion
+- 2 tablespoons all-purpose flour
+- 1/2 teaspoon ground ginger
+- 2 cups coconut milk
+- 1 (8- or 9-ounce) can pineapple, crushed, undrained
+- 3 cups diced cooked turkey
+- 2 tablespoons lemon juice
+- Chopped fresh cilantro
 
 ## Directions
 
-1. Cook onion in butter until transparent
-1. Add cream of anything soup, milk, sour cream, curry and turkey
-1. Stir and heat until evenly warmed.
-1. Serve over hot cooked rice
+1. Melt the butter in a large skillet and add the curry powder, stirring for 2 minutes. 
+2. Add the onions and stir frequently, cooking until soft and translucent. 
+3. Add the flour and ginger. Stir vigorously to avoid large clumps
+4. Add coconut milk and pineapple. Mix well until there are no visible clumps of flour. Bring to a boil, lower the heat, and simmer, uncovered, for 5 minutes. 
+5. Stir in the diced turkey to coat all the pieces well. Cover and let simmer 10 minutes.
+6. Add lemon juice and garnish with cilantro
+7. Serve over hot cooked rice
