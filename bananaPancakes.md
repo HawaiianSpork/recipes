@@ -14,7 +14,7 @@ Wet Ingredients
 - 1 tablesppon of sugar
 - 1 cup whole milk
 - 2 tbsp of canola oil
-- 2 ripe banannas, mashed
+- 2 ripe banannas, chopped will give nice chunks in pancakes
 
 0. blend dry ingredients, combine wet and dry ingredients until just mixed.
 1. cast iron at level 5 with olive oil
