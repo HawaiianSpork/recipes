@@ -14,6 +14,7 @@ Wet Ingredients
 - 1 tablesppon of sugar
 - 1 cup whole milk
 - 2 tbsp of canola oil
+- 1/2 tsp of orange blossom water
 - 2 ripe banannas, chopped will give nice chunks in pancakes
 
 0. blend dry ingredients, combine wet and dry ingredients until just mixed.
