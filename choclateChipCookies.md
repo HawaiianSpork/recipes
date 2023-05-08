@@ -12,7 +12,7 @@ A large crubly cookie with a lot of fun flavors.  Based on Alton Brown's Choclat
 ### Wet Works
  * 150g Sugar
  * 142g Brown Sugar
- * 14 tablesppons butter, melted and slightly cooled
+ * 14 tablespoons butter, melted and slightly cooled
  * 2 egg yolks, beaten
  * 1 teaspoon vanilla extract
  
