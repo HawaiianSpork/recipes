@@ -5,7 +5,7 @@ Adapted from Pumpkin Burgers in the Market Fresh Cookbook
 ## Ingredients
 - 1lb ground beef
 - 1 medium onion, chopped
-- 1 tsp Samba Olec
+- 0.5 Samba Olec
 - 2 Tbsp Thai Red Curry Paste
 - 1 10oz can of tomato soup
 - 1 acorn squash
