@@ -3,13 +3,13 @@
 Based on a recipe from https://cookingupmemories.com/mashed-sweet-potatoes/
 
 ## Ingredients
-- 4 lbs Sweet Potatoes
-- 2 cup Half and Half
-- 4 tbsp + 2 tbsp Unsalted Butter 
-- 6 tbsp Brown Sugar 
-- 2 tsp salt 
-- 1 tsp Ground Cinnamon
-- 1 cup Chopped Pecans 
+- 6 lbs Sweet Potatoes
+- 3 cup Half and Half
+- 6 tbsp + 3 tbsp Unsalted Butter 
+- 9 tbsp Brown Sugar 
+- 3 tsp salt 
+- 1.5 tsp Ground Cinnamon
+- 1.5 cup Chopped Pecans 
 - Fresh Thyme
 
 ## Steps
