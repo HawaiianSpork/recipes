@@ -3,7 +3,7 @@
 Derived from https://spicysouthernkitchen.com/strawberry-pretzel-salad
 
 ## Ingredients
-- 2 cups crushed thin salted pretzels
+- 2 cups crushed slightly salted pretzels (easiest with sticks)
 - 3/4 cup butter, melted
 - 3 tablespoons sugar
 - 8 ounces cream cheese, softened
@@ -17,6 +17,6 @@ Derived from https://spicysouthernkitchen.com/strawberry-pretzel-salad
 
 1. Preheat oven to 400 degrees.
 1. In a medium bowl, mix together crushed pretzels, butter, and 3 tablespoons sugar. Press into a lightly greased 9X13-inch pan. Bake for 8 minutes and cool completely.  It will stick to the bottom and that is good.
-1. Use an electric mixer to beat cream cheese and 1 cup sugar until smooth. Fold in whipped topping using a rubber spatula. Spread over cooled pretzel crust being sure cream cheese mixture completely covers and seals the crust so no jellow can get through to the pretzels.
+1. Use an electric mixer to beat cream cheese and 1 cup sugar until smooth. Fold in whipped topping using a rubber spatula. Spread over cooled pretzel crust being sure cream cheese mixture completely covers and seals the crust so no jello can get through to the pretzels.  If you have any doubt, make more topping because if the jello gets through it will make the pretzels soft.
 1. Refrigerate for at least 30 minutes (can be refrigerated overnight at this point).
 1. In a bowl, whisk together jello and boiling water until jello is completely dissolved. Add the strawberries. Refrigerate for 10 minutes and then pour on top of cream cheese layer. Refrigerate until firm.
