@@ -6,7 +6,6 @@ Makes 2 servings.
 * 1 small red onion, chopped
 * 3 cloves garlic, crushed
 * 1 bunch kale, roughly chopped
-* 1 bunch been stems, chopped
 * 1 bunch beet greens, roughly chopped
 * 1/8 cup of water
 * salt to taste
