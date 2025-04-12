@@ -14,7 +14,7 @@ Makes approximately 10 8-inch pancakes
 
 ## Directions
 
- 1. melt the butter. Set it aside.
+ 1. melt the butter and clarify by scooping off the solid parts. Set it aside.
  2. Put the whole eggs and egg yolks in a large bowl. Beat with a whisk or hand-held mixer until well combined.
  3. Add the flour and beat until smooth and completely combined. Add 6 Tablespoons of the cream to the egg flour mixture and mix until combined. While stirring or beating, pour in the melted butter. 
     Add the remaining cream and orange blossom water and stir to combine. Grate 1/2 a nutmeg and stir into batter.
