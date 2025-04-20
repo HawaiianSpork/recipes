@@ -17,11 +17,11 @@ This is an attempt to record Dick Maletich's famous potato salad
 
 # Directions
 
-1. Peel and slice all potatoes into 1.5 cm cubes, put cut potatoes in salted water as you work so they don't turn brown
-2. Place eggs in muffin tins and bake them at 350F for 30 minutes, when they finish baking place them in cold water.
-3. Boil the potatoes in salted water until they can easily be pierced with a folk, if tiny bits of potatoes start to fall
+1. Peel and slice all potatoes into 150mm cubes, put cut potatoes in salted water as you work so they don't turn brown
+2. Place eggs in silicone muffin wrappers then in a muffin tin and bake them at 325F for 29 minutes, when they finish baking place them in ice water.
+4. Boil the potatoes in salted water until they can easily be pierced with a folk (about 10 minutes), if tiny bits of potatoes start to fall
    off then you have boiled for too long.  Drain potatoes in a collinder and let cool.
-4. Chop the onions into 0.5 cm squares squares, deseed and chop the peppers into 0.5 cm squares.
-5. Peel eggs, slice into 0.5 cm cubes, save 3 and only slice one way to be put on top of the potatoe salad.
-6. Combine potatoes, eggs, mayo, peppers, garlic salt, yellow onions and green onions to just combined.
-7. Top with eggs slices.
+5. Chop the onions into 50mm squares, deseed and chop the peppers into 50mm squares.
+6. Peel eggs, slice into 50mm cubes, save 3 and only slice one way to be put on top of the potatoe salad.
+7. Combine potatoes, eggs, mayo, peppers, garlic salt, yellow onions and green onions to just combined.
+8. Top with eggs slices.
