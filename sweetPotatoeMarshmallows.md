@@ -1,14 +1,14 @@
-#Sweet Potatoes with Marshmallows
+# Sweet Potatoes with Marshmallows
 
 ## Ingredients
 
-- 4 pounds red-skinned sweet potatoes (yams), peeled, cut into 1-inch pieces
+- 5 pounds sweet potatoes, peeled, cut into 1-inch pieces
 - 2/3 cup packed golden brown sugar
 - 5 tablespoons butter
 - 1 teaspoon ground cinnamon
 - 1/2 teaspoon salt
 - 1/4 teaspoon ground nutmeg
-- Pinch of ground ginger
+- 1/4 teaspoon fresh grated ginger
 - 2 cups miniature marshmallows
 - 1/2 cup sliced almonds
 
